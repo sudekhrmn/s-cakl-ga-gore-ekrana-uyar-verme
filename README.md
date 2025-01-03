@@ -1,0 +1,1 @@
+# s-cakl-ga-gore-ekrana-uyar-verme
